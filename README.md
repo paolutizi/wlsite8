@@ -2,7 +2,7 @@
 
 2024年8月低，根据wallless机场的电报群组信息和用户的反馈，wallless机场的管理人员已失联近10天了，wallless机场的在线客服和工单也处于无人处理的状态。
 
-wallless机场的最新官网 www.wlsite8.com  和 www.wlsite9.com也都相继出现问题，wallless机场的部分节点暂时还可以使用，这引发了wallless机场疑似跑路倒闭的的传言。
+wallless机场的最新官网 www.wlsite8.com  和 www.wlsite9.com 也都相继出现问题，这引发了wallless机场疑似跑路倒闭的的传言。
 
 wallless机场作为一家老牌机场梯子上网软件，已经运营数年，积累了大量的用户。wallless机场的跑路倒闭，对于wallless机场的用户无疑是个巨大的损失。
 
