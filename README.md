@@ -1,5 +1,7 @@
 ### wallless官网打不开，不能用了？wallless机场跑路了？推荐替代 – [DOVE加速器，点击注册，免费试用](https://dove8.cc/a.php?asbcbO1PCgF)
 
+![wallless官网打不开，不能用了？wallless机场跑路了？推荐替代 ](https://musescore.org/sites/musescore.org/files/styles/width_900/public/2024-07/2024-05-29%2009%2002%2042.png?itok=7Yvbulhv)
+
 2024年8月低，根据wallless机场的电报群组信息和用户的反馈，wallless机场的管理人员已失联近10天了，wallless机场的在线客服和工单也处于无人处理的状态。
 
 wallless机场的最新官网 www.wlsite8.com  和 www.wlsite9.com 也都相继出现问题，这引发了wallless机场疑似跑路倒闭的的传言。
